@@ -6,4 +6,4 @@ Na segunda-feira, dia **21 de outubro de 2024, às 21h**, realizaremos uma **man
 
 Obrigado,
  
-Time IOB
+**Time IOB**.
